@@ -1,2 +1,1 @@
-# watykanczyk
-Watykańczyk
+nie odpowiadam za doznania z papieżem
